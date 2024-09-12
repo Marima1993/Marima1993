@@ -3,7 +3,6 @@
 Here is a little presentation about me, who I am and was and some basic curiosities about who _Marima_ is :cowboy_hat_face::cowboy_hat_face::cowboy_hat_face:
 
 ### Basic Data
-- 30 years old
 - From Costa Rica, based in Leipzig, Germany
 - Pronouns: She|Her
 ### Curiosities
